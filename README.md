@@ -25,8 +25,7 @@ See some examples the network uses, and has learnt emergent epitopes bearing str
 
 
 
-
-![external-content duckduckgo com-ConvertImage](https://user-images.githubusercontent.com/77211245/104234616-98eecf80-544b-11eb-9231-1b17c9f00570.png)
+![imageonline-co-blurimage](https://user-images.githubusercontent.com/77211245/104234782-dd7a6b00-544b-11eb-9b68-bc8e391c9a64.png)
 
 
 
