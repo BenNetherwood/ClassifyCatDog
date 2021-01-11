@@ -5,3 +5,23 @@ See some examples the network uses, and has learnt emergent epitopes bearing str
 
 ![NN](https://user-images.githubusercontent.com/77211245/104230439-7f4a8980-5445-11eb-8363-5de7f3781105.png)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![external-content duckduckgo com](https://user-images.githubusercontent.com/77211245/104234331-27af1c80-544b-11eb-9d42-1b62b8f5f2d8.jpg)
+
+
