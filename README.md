@@ -9,19 +9,24 @@ See some examples the network uses, and has learnt emergent epitopes bearing str
 
 
 
+ 
+  
+   
+    
+     
+      
+       
+        
+         
+          
+           
 
 
 
 
 
 
+![external-content duckduckgo com-ConvertImage](https://user-images.githubusercontent.com/77211245/104234616-98eecf80-544b-11eb-9231-1b17c9f00570.png)
 
-
-
-
-
-
-
-![external-content duckduckgo com](https://user-images.githubusercontent.com/77211245/104234331-27af1c80-544b-11eb-9d42-1b62b8f5f2d8.jpg)
 
 
